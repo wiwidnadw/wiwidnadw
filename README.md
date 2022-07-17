@@ -8,4 +8,6 @@ LINE : wiwidnadw
 
 YouTube : Digitalneering (https://www.youtube.com/channel/UClxwaaJ-or0SJtlWMi3pHpA)
 
+Facebook pages : https://www.facebook.com/Digitalneering-104307192359347
+
 Hope ur problem solve when click my channel, thanks !
