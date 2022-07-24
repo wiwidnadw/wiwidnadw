@@ -6,7 +6,7 @@
 
 LINE : wiwidnadw 
 
-YouTube : Digitalneering (https://www.youtube.com/channel/UClxwaaJ-or0SJtlWMi3pHpA)
+YouTube : Digitalneering (https://www.youtube.com/c/Digitalneering)
 
 Facebook pages : https://www.facebook.com/Digitalneering-104307192359347
 
